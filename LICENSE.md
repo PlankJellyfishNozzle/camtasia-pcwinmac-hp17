@@ -1,4 +1,4 @@
-# 
+# New Camtasia plugins for Mac OS | Best Camtasia plugins for PC Windows. Featuring particle-effects and plugin-management — optimized for maximum performance on every platform.
 
 
 
